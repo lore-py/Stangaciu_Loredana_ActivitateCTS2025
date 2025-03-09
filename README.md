@@ -1,0 +1,1 @@
+# Stangaciu_Loredana_ActivitateCTS2025
